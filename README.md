@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hyper2snyper
+- 👀 I’m interested in Game Design
+- 🌱 I’m currently learning Byond and eternal Pain
